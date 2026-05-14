@@ -1,4 +1,4 @@
-
+Enhance Magnetic for macOS with best Magnetic for macOS Plugin | network-speed + performance-boost, the #1 plugin. Includes network-speed and performance-boost for a smoother
 
 
 
